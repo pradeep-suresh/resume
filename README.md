@@ -4,8 +4,8 @@
 Work Experience
 ---------------
 **Software Engineer III at Cisco Systems Inc** 2019 - Present <br>
-**Software Engineer II at Cisco Systems Inc** 2018 - 2019 <br>
-**Software Engineer II at Cisco Systems Inc** 2015 - 2018 <br>
+**Software Engineer II at Cisco Systems Inc**  2018 - 2019 <br>
+**Software Engineer II at Cisco Systems Inc**  2015 - 2018 <br>
 
 Education
 ----------
