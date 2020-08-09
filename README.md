@@ -1,4 +1,5 @@
 # Pradeep Suresh
+###### [ pradeepmsuresh@gmail.com ] . [ 408 306 8843 ]
 
 Work Experience
 ---------------
